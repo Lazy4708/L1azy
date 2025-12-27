@@ -1,1 +1,1 @@
-# L1azy
+# L1azy.com
